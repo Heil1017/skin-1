@@ -1,6 +1,6 @@
 # 歴代最強スキン5選
 <p align="center">
-  A page to showcase very common skins, these skins are all great for any skill level.
+  歴史的瞬間2054 第8弾
   <br>
   last updated 09/12/2022
 </p>
