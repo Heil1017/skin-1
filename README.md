@@ -1,8 +1,8 @@
 # 歴代最強スキン5選
 <p align="center">
-  歴史的瞬間2054 第8弾
+  OSU!最高の瞬間2044
   <br>
-  last updated 09/12/2022
+  最終更新日 11/23/2024
 </p>
 
 # [Rafis 2018-03-26 HDDT](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
