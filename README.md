@@ -1,8 +1,8 @@
-# 歴代最強スキン5選
+# CFE SKINS
 <p align="center">
-  OSU!最高の瞬間2044　勝利を掴め
+  
   <br>
-  最終更新日 11/23/2024
+
 </p>
 
 # [CFE BLUEHMHM NM](https://drive.google.com/file/d/17wc5eXdiewa7YTKG4Wonwf3G_Agdj6FB/view?usp=drive_link&export=download)
