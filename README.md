@@ -6,7 +6,7 @@
 </p>
 
 # [CFE BLUEHMHM NM](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
-[![](https://i.imgur.com/bMkRaKL.png)](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
+[![](https://ibb.co/ydqPMz8)](https://drive.google.com/file/d/1VYyiktf9zjW6RmbS7z2qNn7JVcXXA4Su/view&export=download)
 
 # [vv idke trail](https://github.com/ryancranie/skinhub/raw/tyfh/universal/vv%20idke%20trail.osk)
 [![](https://osu.ppy.sh/ss/18134801/7edd)](https://github.com/ryancranie/skinhub/raw/tyfh/universal/vv%20idke%20trail.osk)
