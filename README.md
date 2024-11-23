@@ -1,4 +1,4 @@
-# Universal skins
+# cfe skins
 <p align="center">
   A page to showcase very common skins, these skins are all great for any skill level.
   <br>
