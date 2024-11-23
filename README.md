@@ -5,7 +5,7 @@
   最終更新日 11/23/2024
 </p>
 
-# [Rafis 2018-03-26 HDDT](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
+# [CFE BLUEHMHM NM](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
 [![](https://i.imgur.com/bMkRaKL.png)](https://github.com/ryancranie/skinhub/raw/tyfh/universal/Rafis%202018-03-26%20HDDT.osk)
 
 # [vv idke trail](https://github.com/ryancranie/skinhub/raw/tyfh/universal/vv%20idke%20trail.osk)
